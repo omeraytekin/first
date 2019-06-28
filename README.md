@@ -1,2 +1,2 @@
 # first
-hello aq pustt dunya seni kufurbaz yarali omer
+hello from mehmet :))))
